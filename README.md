@@ -44,3 +44,11 @@ https://osu.ppy.sh/beatmapsets/155805#osu/382042 elle elle est hyper courte
 
 https://osu.ppy.sh/beatmapsets/64636#osu/190045 "dnb" lol / musique d'anime
 
+https://osu.ppy.sh/beatmapsets/42038#osu/132731 electro / plutot cool en hard et le mode insane est facile
+
+https://osu.ppy.sh/beatmapsets/17103#osu/61123 touhou / plutot cool en hard
+
+https://osu.ppy.sh/beatmapsets/74586#osu/211697 electro / je sais plus si c'est cette version ou l'autre de dear you mais une des deux est op
+
+https://osu.ppy.sh/beatmapsets/43466#osu/136400 l'autre version de dear you 
+
